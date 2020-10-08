@@ -8,7 +8,7 @@
 - :performing_arts: Keep attitude and gratitude for giving credits of people for their stipulated work :thought_balloon:
 - :video_game: Love to play games with clubs for fun 
 - 🤔 Mr.Realistic for Nation, Family, Friends, Service and :joy:
-- ⚡ Fun fact: I believe to be stable in industry instead of jump & provide service
+- ⚡ Fun fact: I believe to be stable & provide service in industry instead of unnecessary jump 
 
 
 ### Basic Languages and Tools:
